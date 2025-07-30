@@ -215,6 +215,7 @@
 <p><a href="https://www.facebook.com/groups/nativepathcollagenpeptides.us">https://www.facebook.com/groups/nativepathcollagenpeptides.us</a></p>
 <p><a href="https://www.facebook.com/groups/nativepathcollagenreviews.us">https://www.facebook.com/groups/nativepathcollagenreviews.us</a></p>
 <p>&nbsp;</p>
+<p><strong>Blogs👇👇</strong><br /><a href="https://github.com/NativePathxo/NativePath-Collagen">https://github.com/NativePathxo/NativePath-Collagen</a><br /><a href="https://github.com/NativePathxo/NativePath-Collagen-Reviews">https://github.com/NativePathxo/NativePath-Collagen-Reviews</a><br /><a href="https://github.com/NativePathxo/NativePath-Collagen-Peptides">https://github.com/NativePathxo/NativePath-Collagen-Peptides</a><br /><a href="https://github.com/NativePathxo/NativePath-Native-Creatine">https://github.com/NativePathxo/NativePath-Native-Creatine</a><br /><a href="https://github.com/NativePathxo/NativePath-Native-Creatine-Reviews">https://github.com/NativePathxo/NativePath-Native-Creatine-Reviews</a></p>
 <p><strong>Other FB👇👇</strong></p>
 <p><a href="https://www.facebook.com/NativePathBerberine/">https://www.facebook.com/NativePathBerberine/</a></p>
 <p><a href="https://www.facebook.com/groups/nativepathberberinereviews/">https://www.facebook.com/groups/nativepathberberinereviews/</a></p>
