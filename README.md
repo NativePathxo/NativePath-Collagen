@@ -1,5 +1,7 @@
 <div>
-<h2><strong>╰┈➤ Product :&nbsp;<a href="https://careline360.com/nativepath-collagen-buy" target="_blank">NativePath Collagen Peptides</a>&nbsp;<br /></strong><strong>╰┈➤ Availability:&nbsp;<a href="https://careline360.com/nativepath-collagen-buy" target="_blank">Online<br /></a></strong><strong>╰┈➤ Official Website:&nbsp;<a href="https://careline360.com/nativepath-collagen-buy" target="_blank">Visit Site</a></strong></h2>
+<h2><strong>╰┈➤ Product :&nbsp;<a href="https://careline360.com/nativepath-collagen-buy" target="_blank">NativePath Collagen Peptides</a>&nbsp;</strong></h2>
+<h2><strong>╰┈➤ Availability:&nbsp;<a href="https://careline360.com/nativepath-collagen-buy" target="_blank">Online</a></strong></h2>
+<h2><strong>╰┈➤ Official Website:&nbsp;<a href="https://careline360.com/nativepath-collagen-buy" target="_blank">Visit Site</a></strong></h2>
 </div>
 <div class="separator"><a href="https://www.facebook.com/NativePathCollagenUSA" target="_blank"><img src="https://blogger.googleusercontent.com/img/b/R29vZ2xl/AVvXsEg9-vPvfoth-lMWEdwyydeL_PhFA6Ul0DJS33fCbVM6IBlqbfD1i-wtNvEWmjNJ2shWonPg1U9nlTv-B_9a069M_6X5sUnNrlY7dqTkIrH3_rdhFfEgFAJq7_SUmJBZKIwiGxLmeG4ylduSO25YM6kuqpTV-bPPSC8OUGUIwxI6GtimRMOZyjevWbRXEsc/w508-h316/native%20path%20collagen%202.jpg" alt="" width="508" height="316" border="0" data-original-height="410" data-original-width="660" /></a></div>
 <h2><strong><em>➥🔗<a href="https://careline360.com/nativepath-collagen-buy" target="_blank">Click Here To Order Don't Miss Out Today's Special Offer</a></em></strong></h2>
@@ -226,3 +228,4 @@
 <p><a href="https://www.facebook.com/GlobalHealthFarmsCBDGummiesTrending/">https://www.facebook.com/GlobalHealthFarmsCBDGummiesTrending/</a></p>
 <p><a href="https://www.facebook.com/TivanoTitaniumCuttingBoardReviews">https://www.facebook.com/TivanoTitaniumCuttingBoardReviews</a></p>
 <p><a href="https://www.facebook.com/BuyTivanoCuttingBoardReviews">https://www.facebook.com/BuyTivanoCuttingBoardReviews</a></p>
+<p>&nbsp;</p>
